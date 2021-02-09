@@ -1,5 +1,5 @@
 
 💗 here is Petra 🐰  
-👩🏻 she/her 🧐🇳  
+👩🏻 she/her 🥳
 
 
